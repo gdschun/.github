@@ -6,4 +6,4 @@ We create and offer events, hackathons, bootcamps, workshops, and more in tech f
 
 Being a GDSC member provides you with exciting opportunities to grow your skills in various fields, meet like-minded people, and receive swag, prizes, and certificates from Google. ⚡
 
-Join Us Now: [bit.ly/gdschun](bit.ly/gdschun) 🏆
+Join Us Now: [bit.ly/gdschun](https://bit.ly/gdschun) 🏆

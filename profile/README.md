@@ -1,4 +1,4 @@
-### Hi there 🙋‍♀️,
+### Hi there 🙋‍♂️,
 
 Welcome to the Google Developer Student Clubs at Hurghada, a community powered by Google that bridges the gap between theory and practice. 💡
 
